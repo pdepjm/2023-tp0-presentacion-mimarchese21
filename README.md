@@ -10,9 +10,9 @@
 
 Top 3: 
 
-    - 7 habitos de la gente altamente efectiva.
-    - 12 reglas para vivir. 
-    - Habitos Atomicos.
+    - 12 reglas para vivir.
+    - Habitos Atomicos. 
+    -7 habitos de la gente altamente efectiva.
 - :grin: Estoy con dos emprendimientos, una agencia de landing pages y una b2b de automatizacion de procesos. 
 - :purple_heart: Amo mucho pasar tiempo con mis amigxs. 
 - :cupid: Soy fan de Harry Potter. La 5 es la mejor, no hay dudas.
